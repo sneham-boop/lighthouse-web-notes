@@ -1,1 +1,1 @@
-# [Sneha]'s Notes
+# Sneha's Notes
